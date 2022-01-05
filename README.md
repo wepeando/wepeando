@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @wepeando
+- 👀 I’m interested in making nice websites
+- 🌱 I’m currently learning all
+- 💞️ I’m looking to collaborate on marketing digital
+- 📫 How to reach me wepeando@wepeando.com
